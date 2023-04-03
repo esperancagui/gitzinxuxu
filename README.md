@@ -1,0 +1,2 @@
+# gitzinxuxu
+ primeiro repositorio
